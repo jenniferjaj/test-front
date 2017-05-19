@@ -1,9 +1,7 @@
-Nome Completo: Luiz Boça
+Nome Completo: Jennifer Amanda Jauregui
 
-E-mail: luiz.boca@clubedosminigameiros.com.br
+E-mail: jennifer.jaj@outlook.com
 
-Linkedin: http://linkedin.com/luiz.boca
+Linkedin: https://www.linkedin.com/in/jennifer-amanda-jauregui-397b57142/
 
-Telefone: (44) 44444-4444 
-
-Portfólio (Opicional): clubedosminigameiros.com.br/portfolio
+Telefone: (47) 9 8442-4072 / (47) 3337-1245
